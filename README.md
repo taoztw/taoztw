@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **Python, Machine Translation**
 
-- 📫 How to reach me **tztw4723@gmail.com**
+- 📫 How to reach me **tztw.app@gmail.com**
 
 - ⚡ Fun fact **funny**
 
